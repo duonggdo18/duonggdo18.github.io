@@ -1,6 +1,9 @@
 ## Viết một vài đoạn ngắn cho quen
 Lâu rồi mình không viết gì, có đôi lần được một vài dòng rồi cũng xóa đi vội vã.
-### Cháu trai
-Thằng cu này sinh năm Nhâm Dần, trùng ngày tháng sinh với ông nội là 13 tháng 8, ngày dương là mồng 8 tháng 9, thuộc cung Xử nữ. Nói thật thì chú đéo biết cái mẹ gì về cung này, và các cung khác :D. Để dần dần cho chú tìm hiểu, mày làm chú bị bất ngờ quá, đa
+Giờ viết trên cái vớ vẩn này, chả biết bao giờ nó không tồn tại nữa, đùng cái nó biến mất thôi thì cũng được, đỡ mất công xóa.
 
-#### ÁJCHJA
+### Cháu trai
+Thằng cu này sinh năm Nhâm Dần, trùng ngày tháng sinh với ông nội là 13 tháng 8, ngày dương là mồng 8 tháng 9, thuộc cung Xử nữ. Nói thật thì chú đéo biết cái mẹ gì về cung này, và các cung khác :D. Để dần dần cho chú tìm hiểu, mày làm chú bị bất ngờ quá, hoặc là do chú lười chứ chú chưa chuẩn bị tí nào cho gia đình cả. Anh chú, tức là bố mày, bảo mày khóc to lắm, chú hồi bé cũng khóc to, bà nội rồi cụ nội hay dỗ chú lắm. Bà nội đang ở đấy bế cháu rồi, rồi cụ nội, ông nội, cả chú cũng sẽ vào với cháu. Gia đình là điều quan trọng nhất, chào mừng cháu đến với thế giới này.
+### Đích đến
+Lâu rồi mình chẳng bước một bước nào cả."Ai không biết rõ mục tiêu, người ấy không tìm được đường đi". Đặt ra mục tiêu cụ thể thì rất dễ, công ăn việc làm nhà nước, hay 1 vợ 2 con 3 lầu 4 bánh, mình vẫn muốn được là bản thân mình, một cách trần trụi nhất. Mình thích ngồi lên xe máy đi khắp các vùng miền, quan sát sự vật xung quanh, mình thích đồng hồ tudor, panerai. Mình muốn xây được một ngôi nhà đàng hoàng cho bà và bố mẹ. Bản thân mình đã dậm chân một chỗ lâu vì tham hưởng thụ, trong khi mình quên mình cũng thích hưởng thụ sự lao động vô cùng. 1 tháng nữa là sang tuổi 22, mấy năm nay mình tiêu cực quá mà không để ý đầy người tuổi 22 còn chưa ra hình hài gì. Bắt đầu sớm là một lợi thế và lợi thế không phải là tất cả, chúc tôi thành công nhé.
+### Thói quen
